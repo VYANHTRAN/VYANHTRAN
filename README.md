@@ -18,4 +18,4 @@ I’m an undergraduate in **Data Science**, passionate about **turning raw data 
 - 📈 Data Visualization & Interactive Dashboards  
 
 ### 📫 Let’s Connect!  
-🔗 [LinkedIn]([https://www.linkedin.com/in/vy-anh-tr%E1%BA%A7n-a23191247/] | 📧 Email: vya123.work@gmail.com
+📧 Email: vya123.work@gmail.com
